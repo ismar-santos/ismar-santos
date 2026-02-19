@@ -1,1 +1,1 @@
-## Principal kills
+## Principal skills
